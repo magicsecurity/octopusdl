@@ -12,4 +12,4 @@ http://octopusdl.com
 
 http://www.octopusdl.com
 
-If you have any questions or suggestions about OctopusDL, do not hesitate to contact me at octopusdownload@gmail.com.
+If you have any questions or suggestions about OctopusDL, do not hesitate to contact me at magicsecurity@126.com.
